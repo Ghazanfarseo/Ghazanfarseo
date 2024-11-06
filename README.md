@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ghazanfarseo
+- 👋 Hi, I’m @Ghazanfar Ishfaq
 - 👀 I’m interested in ...SEO strategies that drive growth and boost online presence.
 - 🌱 I’m currently learning ...Advanced SEO tactics and AI-driven analytics.
 - 💞️ I’m looking to collaborate on ...SEO and digital marketing projects.
